@@ -1,1 +1,0 @@
-rubaha sosi penis
